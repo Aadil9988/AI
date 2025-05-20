@@ -1,1 +1,1 @@
-# AI
+# AI MICRO DIGREE
